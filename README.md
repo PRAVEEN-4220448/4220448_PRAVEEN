@@ -1,3 +1,4 @@
 # 4220448_PRAVEEN
 
-[GIT TRAINING CERTIFICATE.pdf](https://github.com/user-attachments/files/21434009/GIT.TRAINING.CERTIFICATE.pdf)
+
+![Image](https://github.com/user-attachments/assets/815dd27b-f2ca-4906-97d9-077f83c11b0f)
