@@ -1,3 +1,3 @@
 # 4220448_PRAVEEN
 
-![Uploading Inq5ERDiagram.jpg...](https://github.com/PRAVEEN-4220448/4220448_PRAVEEN/blob/9b45371088f15bbba27f93bcfa4d33ef4101f6d5/GIT%20TRAINING%20CERTIFICATE.pdf)
+[GIT TRAINING CERTIFICATE.pdf](https://github.com/user-attachments/files/21433899/GIT.TRAINING.CERTIFICATE.pdf)
